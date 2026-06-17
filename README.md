@@ -34,7 +34,6 @@
 - https://sites.google.com/view/mx5sl6jezhkf8pmchy
 - https://sites.google.com/view/k8hrmkcw8e3lgig5gw
 - https://sites.google.com/view/ilgwioieaf7wp24jkq
-- http://c.kfmail.top/c/dev-resources-jwldrvdda
 - https://sites.google.com/view/ls272k373zsliopswr
 - https://sites.google.com/view/p5vrvhg96jvmwc1lo9
 - https://sites.google.com/view/uljj68ycwkyn6ndodz
@@ -60,6 +59,7 @@
 - https://sites.google.com/view/gz8ctkvofrwayazzpz
 - https://sites.google.com/view/uhy09ziqr6mlkh5821
 - https://sites.google.com/view/jypvzl6frzj2odl4y6
+- http://43.133.171.72/c/dev-resources-jwldrvdda
 - https://sites.google.com/view/q5cbfsxx6y9t40m5lw
 - https://sites.google.com/view/j2bl7vsllx4lw4div1
 - https://sites.google.com/view/n6p4c4c19v7dus8cpq
@@ -153,7 +153,6 @@
 - https://sites.google.com/view/mz80jcn2cs9dnpctiy
 - https://sites.google.com/view/bd8638nodfezzumekc
 - https://sites.google.com/view/pu60e3389lyxghnogu
-- http://c.kfmail.top/c/dev-resources-jwldrvdda
 - https://sites.google.com/view/kdwwk471o41cfuigdg
 - https://sites.google.com/view/vioy06xhxguyds3bsu
 - https://sites.google.com/view/vj38z7tqx76lkdedxj
@@ -185,6 +184,7 @@
 - https://sites.google.com/view/lpr0y2xmfx9jny7lde
 - https://sites.google.com/view/vb0nqtxleerqtah656
 - https://sites.google.com/view/ygrxu0oi4551zum7jk
+- http://43.133.171.72/c/dev-resources-jwldrvdda
 - https://sites.google.com/view/ufw9g2nkamx939v6to
 - https://sites.google.com/view/bdhhqztmft0pb029wj
 - https://sites.google.com/view/wtngvb5wxlgdojqpwh
@@ -228,7 +228,6 @@
 - https://sites.google.com/view/djhb7kriy9qf1a7oh4
 - https://sites.google.com/view/ocj0a6pz7ip2jicu4w
 - https://sites.google.com/view/f5lndbens2mzon1m6p
-- http://c.kfmail.top/c/dev-resources-jwldrvdda
 - https://sites.google.com/view/zotmxmqd1ftwo8xfg8
 - https://sites.google.com/view/zzgg92siq692go6igs
 - https://sites.google.com/view/al649jmm0jihxf2md4
@@ -243,6 +242,7 @@
 - https://sites.google.com/view/vtbbuyori5lfbhwczz
 - https://sites.google.com/view/nr7j5qwz4sqewl85ly
 - https://sites.google.com/view/kelzuqrrj1epr85luh
+- http://43.133.171.72/c/dev-resources-jwldrvdda
 - https://sites.google.com/view/wtpxrb43us17aqdt6i
 - https://sites.google.com/view/xi2rb2n9wpg5rr1741
 - https://sites.google.com/view/ytl1wp9dswovjhojkn
